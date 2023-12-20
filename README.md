@@ -100,5 +100,5 @@
 ## Contact Me
 
 - pravakarbhattacharya2002@gmail.com
-- [LinkedIn]([(22) Pravakar Bhattacharya | LinkedIn](https://www.linkedin.com/in/pravakar-bhattacharya-a02b01242/))
+- [LinkedIn](https://www.linkedin.com/in/pravakar-bhattacharya-a02b01242/)
 - +91 6009588616
