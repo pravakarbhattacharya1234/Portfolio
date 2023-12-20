@@ -1,3 +1,5 @@
+# Pravakar Bhattacharya
+
 ![](https://lh7-us.googleusercontent.com/MP_TqEmLgKqz2OEd7gpSfFGtSj9gfgKt117enwv3px7CdJXqXs5nSm1dXztzRhw87387raEIk3Jy3Bs490VRTuEGDGpwruKZ5N6JNTkwQEDG0N-5BUc-9qI9fGvGie_PaNLlglCC-b3IAsTgLcSw=s2048)
 
 ## **Core Skills** 
